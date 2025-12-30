@@ -1,1 +1,0 @@
-# Forage-Accenture-Data-Analyst-Job-Simulation
